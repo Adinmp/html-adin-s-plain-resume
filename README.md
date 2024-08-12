@@ -1,0 +1,1 @@
+# html-adin-s-plain-resume
